@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @OlgaJarosova and if I am not travelling around the world as Digital nomad, I am living in Prague, Czechia and working as Marcom PM for Microsoft
-- 👀 I’m interested in Digital Transformation & Marketing
+- 👀 I’m interested in Cloud, AI, Digital Transformation & Marketing
 - 🌱 Because is important never stop learning, I am exploring new trends in AI, Security & Data
 - 💞️ I’m looking to collaborate on international cross-markets projects
 - 📫 Easiest way how to reach me is via LinkedIn https://www.linkedin.com/in/olgajarosova/
